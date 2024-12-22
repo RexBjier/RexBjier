@@ -23,6 +23,7 @@ I'm RexBjier, and you're about to dive into my world of code, memes, and 🐟.
 - 😁 Never had a girlfriend, but my fish think I'm fin-tastic! 🐠
 - 🎮 I'm a huge fan of Terraria. My friends don't like it because... well, let's just say they're not as skilled as I am. 😜
 - 🤑 But my friend and me like playing Minecraft and other games with my friends. It’s fun, but my wallet is crying! 💸
+- 📺 I love watching anime! Whether it's the latest action-packed series or heartwarming slice-of-life, I'm always up for a good binge-watching session. My friends think I'm obsessed, but hey, they just don't understand the art of anime. 😏
 
 ### Connect with me:
 - **Instagram:** Follow my fish adventures and more!
