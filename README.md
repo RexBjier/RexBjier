@@ -9,8 +9,8 @@
 I'm RexBjier, and you're about to dive into my world of code, memes, and 🐟. 
 
 ### 🔥 Visit My website:
-- raffaeldev.com
-- raffaeldev.info
+- [raffaeldev.com](https://raffaeldev.com) 
+- [raffaeldev.info](raffaeldev.info) 
 
 ### 🌱 My Current Setup:
 - **OS:** Android, RDP
@@ -24,13 +24,12 @@ I'm RexBjier, and you're about to dive into my world of code, memes, and 🐟.
 ### More About Me:
 - 🍕 I have a love-hate relationship with food. Love to eat, hate to choose. Only the best for my taste buds!
 - 🤖 I can't code... or can I? Thanks to AI, I code like a pro without actually knowing what I'm doing. Magic, right?
-- 😁 Never had a girlfriend, but my fish think I'm fin-tastic! 🐠
 - 🎮 I'm a huge fan of Terraria. My friends don't like it because... well, let's just say they're not as skilled as I am. 😜
 - 🤑 But my friend and me like playing Minecraft and other games with my friends. It’s fun, but my wallet is crying! 💸
 - 📺 I love watching anime! Whether it's the latest action-packed series or heartwarming slice-of-life, I'm always up for a good binge-watching session. My friends think I'm obsessed, but hey, they just don't understand the art of anime. 😏
 
 ### Connect with me:
-- **Instagram:** Follow my fish adventures and more!
+- **Instagram:** Follow my insagram lol (dm open :D) 
 - **TikTok:** Watch my cringe jedag jedug vid 😹
 
 ---
