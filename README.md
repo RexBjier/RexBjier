@@ -10,7 +10,7 @@ I'm RexBjier, and you're about to dive into my world of code, memes, and 🐟.
 
 ### 🔥 Visit My website:
 - [raffaeldev.com](https://raffaeldev.com) 
-- [raffaeldev.info](raffaeldev.info) 
+- [raffaeldev.info](https://raffaeldev.info) 
 
 ### 🌱 My Current Setup:
 - **OS:** Android, RDP
